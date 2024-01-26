@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @axrkon
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning A lot of stuff such as python
+- 📫 Reach me through the email: hbit698@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I like turtles
